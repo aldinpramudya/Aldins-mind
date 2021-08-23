@@ -6,3 +6,11 @@ _aku bisa memiringkan tulisan_
 
 
 # menghalo
+
+**aku bisa menebalkan tulisan**
+
+_aku bisa memiringkan tulisan_
+
+**dua duanya bisa aku _gabung_**
+
+
