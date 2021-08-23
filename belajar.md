@@ -22,4 +22,4 @@ _aku bisa memiringkan tulisan_
 
 [Belajar Menonton Evangelion](https://id.wikipedia.org/wiki/Neon_Genesis_Evangelion)
 
-![Image of Anime](cropped-1920-1080-956390)
+[FOTO NGAB](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.imdb.com%2Ftitle%2Ftt0112159%2F&psig=AOvVaw2wNr0w43TGCy9NKsxiFwEd&ust=1629811623449000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCOD9lcmfx_ICFQAAAAAdAAAAABAD.png)
