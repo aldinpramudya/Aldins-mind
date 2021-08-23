@@ -22,4 +22,4 @@ _aku bisa memiringkan tulisan_
 
 [Belajar Menonton Evangelion](https://id.wikipedia.org/wiki/Neon_Genesis_Evangelion)
 
-[FOTO NGAB](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.imdb.com%2Ftitle%2Ftt0112159%2F&psig=AOvVaw2wNr0w43TGCy9NKsxiFwEd&ust=1629811623449000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCOD9lcmfx_ICFQAAAAAdAAAAABAD.png)
+![Tenki no ko](https://mimbaruntan.com/wp-content/uploads/2020/05/EE3qIVDUEAY_Sw9.jpg)
